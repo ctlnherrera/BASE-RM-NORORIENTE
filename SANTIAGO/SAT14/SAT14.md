@@ -4,7 +4,7 @@
 [instagram](https://www.instagram.com/yungay_te_ve/)
 [facebook](https://www.facebook.com/yungayteve/)
 [twitter](www.twitter.com/TeVeYungay)
-<correo@correo.cl>
+<asambleayungay@gmail.com>
 ---
 
 ### Representantes
